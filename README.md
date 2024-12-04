@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Data Science, ML**
 
-- 📫 How to reach me **princedoobay17@gmail.com**
+- 📫 How to reach me **prince.doobay@yahoo.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
